@@ -1,5 +1,5 @@
 # 💫 About Me:
-🔭 I'm a Full Stack Developer and AI/ML Developer.<br>🌱 Currently learning and experimenting with new technologies to enhance my skills.<br>💼 Worked with more than 2 companies on various projects.<br>
+🔭 I'm a Tech enthusiast with a flair for learning and a management background, bridging the gap between innovation and effective teamwork..<br>🌱 Currently learning and experimenting with new technologies to enhance my skills.<br>
 
 
 
